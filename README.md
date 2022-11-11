@@ -1,3 +1,3 @@
 # AICSSYC-UPDATEDSITE
-https://ukd1211.github.io/AICSSYC-UPDATEDSITE/
+
 
